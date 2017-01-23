@@ -1,0 +1,1 @@
+`The commonly accepted practices in religious gathering.`
